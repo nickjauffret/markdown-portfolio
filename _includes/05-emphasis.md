@@ -1,1 +1,4 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Enterprise Business Representative - *Corporate Sales Team*
+
+   Work with **Laura Church, Nico Haley, Chris Kovar, _Christen Shaw (OOO currently)_**
+  
