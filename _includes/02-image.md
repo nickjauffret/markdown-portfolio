@@ -1,1 +1,1 @@
-! [Image of Hollywood Street] (https://media.tacdn.com/media/attractions-splice-spp-674x446/07/71/39/f1.jpg)
+! [Image of Hollywood Street] (https://www.fodors.com/wp-content/uploads/2019/10/ThingsToKnowBeforeYouGoLosAngeles__HERO_iStock-468040530.jpg)
